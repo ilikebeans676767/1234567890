@@ -1,1 +1,1 @@
-[Link](https://www.survev.io)
+[Link](https://survev.io/)
